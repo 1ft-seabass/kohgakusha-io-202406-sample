@@ -1,0 +1,1 @@
+# kohgakusha-io-202406-sample
